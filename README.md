@@ -21,4 +21,4 @@
 
 Apaixonado por tecnologia, educação e por mudar a vida das pessoas atraves da programação.
 
-// https://kizakainc.wixsite.com/angola/post/xofela-karina-silva-morais-imagens-intimas-vazadas
+<!-- https://kizakainc.wixsite.com/angola/post/xofela-karina-silva-morais-imagens-intimas-vazadas -->
